@@ -1,1 +1,1 @@
-second sost
+tri sost
